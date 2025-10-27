@@ -1,4 +1,4 @@
-# 👋 Salut, je suis **Rabbi KIMBANGI MENAKUNTIMA**
+# 👋 Salut, je suis Rabbi KIMBANGI MENAKUNTIMA
 
 🎓 Étudiant en **Master Systèmes Intelligents et Multimédia** à l’**Institut Francophone International (IFI)** de l’**Université Nationale du Vietnam (VNU Hanoi)**, en double diplomation avec l’**Université de La Rochelle (France)**.
 
